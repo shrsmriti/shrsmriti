@@ -1,4 +1,5 @@
-### Hi there 👋
+My private info.(https://github.com/shrsmriti/Smriti-Repositary/issues
+0![image](https://user-images.githubusercontent.com/129874647/229854959-99262bc1-9a36-4f3d-a4fc-eae48d3aa7d9.png)
 
 <!--
 **shrsmriti/shrsmriti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
